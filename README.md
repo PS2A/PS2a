@@ -5,13 +5,13 @@
 
 - I’m currently working on **Amonhub**
 
-- 👨‍💻 All of my projects are available at [my GitHub](my GitHub)
+- 👨‍💻 All of my projects are available at [my GitHub]
 
 - Have Any Questions? My TOTALLY NOT BURNER Gmail is [WeHateKiryuKazuma@gmail.com](WeHateKiryuKazuma@gmail.com)
 
-- 📫 How to reach me **Discord, @ JosephAmonPS2**
+- 📫 How to reach me - **Discord, @ JosephAmonPS2**
 
-- ⚡ Fun fact **I am Jo Amon from Yakuza 2 (Playstation 2)**
+- ⚡ Fun fact - **I am Jo Amon from Yakuza 2 (Playstation 2)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
